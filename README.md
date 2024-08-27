@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **findabdurhman@gmail.com**
 
-- 📄 Know about my experiences [https://www.linkedin.com/in/abdurhman-abrar-52a279208/](https://www.linkedin.com/in/abdurhman-abrar-52a279208/)
+- 📄 Know about my experiences [https://www.linkedin.com/in/findabdy/](https://www.linkedin.com/in/findabdy/)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
